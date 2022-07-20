@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @NomaanRja
+- 👀 I’m interested in learning new technologies
+- 🌱 I’m currently learning web development
+- 📫 How to reach me 
+- Mail me at - nomaanrja@gmail.com
+- instagram - @nomaan_rja
